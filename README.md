@@ -12,3 +12,5 @@ https://macwilloprogram.blogspot.com/2026/02/assignment-used-dataset-from-local.
 https://macwilloprogram.blogspot.com/2026/02/assignment-5.html
 # Assignment 6 -
 https://macwilloprogram.blogspot.com/2026/02/assignment-6.html
+# Assignment 7 -
+https://macwilloprogram.blogspot.com/2026/03/assignment-7.html
